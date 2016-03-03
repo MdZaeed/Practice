@@ -1,4 +1,2 @@
 # Practice
-Practicing Github
-
 abdvajbgavsbhdasjdbhsdbn
